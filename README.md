@@ -1,1 +1,1 @@
-[Taho IA Test.pdf](https://github.com/user-attachments/files/17269766/Taho.IA.Test.pdf)
+Description of projects in pdf file : [Taho IA Test.pdf](https://github.com/user-attachments/files/17269766/Taho.IA.Test.pdf)
